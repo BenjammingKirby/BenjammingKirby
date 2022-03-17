@@ -8,4 +8,4 @@ Hi! My Name is Benjamin Kirby, you can call me Ben!
 
 ## Contact Me
 
-- Discord: [Bwen Jwawwing -3- 🌸🌷💮#8710](https://discord.com/users/754279952647716914)
+- Discord: [Ben Jamming#8710](https://discord.com/users/754279952647716914)
